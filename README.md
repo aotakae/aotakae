@@ -1,6 +1,6 @@
 <div align="center">
 <p align="center">
-<img src="https://files.catbox.moe/s401a5.webp">
+<img src="https://files.catbox.moe/nlotrv.webp">
 </p>
 
 
