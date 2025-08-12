@@ -1,4 +1,4 @@
-‎‎‎‎I ㅤ ♡ ㅤ MAI ㅤㅤ [FRIENDS](https://rentry.co/hitlists) ㅤㅤ LOTS ㅤ ( •̯́ ₃ •̯̀)
+‎‎‎‎I ㅤ [♡](https://rentry.co/hitlists) ㅤ MAI ㅤㅤ [FRIENDS](https://rentry.co/hitlists) ㅤㅤ LOTS ㅤ ( •̯́ ₃ •̯̀)
 
 <img src="https://files.catbox.moe/0xagwi.jpg" width="300">
 
